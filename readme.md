@@ -1,1 +1,1 @@
-Visit my website [abranhe.com](https://abranhe.com) and find me on [Instagram](https://instagram.com/abranhe), [Twitter](https://twitter.com/abranhe), [LinkedIn](https://linkedin.com/in/abranhe) and [StackOverflow](https://go.abranhe.com/stackoverflow)
+Visit my website [abranhe.com](https://abranhe.com) and find me on [Instagram](https://instagram.com/abranhe), [LinkedIn](https://linkedin.com/in/abranhe) and [StackOverflow](https://go.abranhe.com/stackoverflow)
